@@ -5,6 +5,8 @@ hi guys im princezam totally the real one please trust me i am him.<sub> Disclam
 <br> IDK HOW TO CODE! So i just use this to keep track of pre-existing projects and to link stuff to pt skins
 <br> self proclaimed [notorious grape thief](https://rentry.co/grapethief) btw. if you cared.
 
+[BOYCOTT DISCORD PLEASE](https://rentry.co/Lifesteal-SMP)
+
 WHISPER TO INTERACT IF U ARE FROM PT! I will ignore u otherwise dawg
 <br> basic dni, troll skins dni as well pls </3
 
